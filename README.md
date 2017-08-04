@@ -1,0 +1,1 @@
+# NiceHashMiner_v1.7.5.13.zip
